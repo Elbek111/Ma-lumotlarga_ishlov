@@ -1,0 +1,1 @@
+# Ma-lumotlarga_ishlov
